@@ -1,1 +1,0 @@
-# Umesh-Pal-Codsoft-Internship-C-Task
